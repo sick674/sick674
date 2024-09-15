@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there 👋. I'm noob of github and I want to be good at using githup also. Let's get it!!
 
 <!--
 **sick674/sick674** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
